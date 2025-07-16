@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Rithwik-kanchumarthi
 - 📫 How to reach me ...
-- rithwik2402@gmail.com
+- ritturithwik@gmail.com
 - 😄 Pronouns: ...
 - he/him
 
